@@ -12,3 +12,5 @@ Coloque tudo que vem depois dos dois pontos de forma que se junte ao texto. O te
 Associe a IA a amigos próximos
 
 Ebook montado no Microsoft Word.
+
+Link da publicação no LinkedIn: https://www.linkedin.com/posts/miguel-figueiredo-67a39a345_ia-aquela-amiga-que-sempre-te-d%C3%A1-uma-for%C3%A7a-activity-7282520550453772289-qWJ2?utm_source=share&utm_medium=member_desktop
